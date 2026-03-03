@@ -4,4 +4,5 @@
 
 > Наш Open Source проект предназначен для объединения людей со всего мира!
 
-_Тут будут контакты_
+Тел: 8 800 555 35 35 
+Email: proshepozvonit@chemukogotozanimat.com
